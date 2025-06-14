@@ -21,8 +21,8 @@
 
 _Aishabibi Askhatkyzy_  
 QA Engineer in training  
-Email: 21aishabibi@gmail.com 
-LinkedIn: www.linkedin.com/in/aishabibi-zhilibayeva-2a8594103
+Email: *[21aishabibi@gmail.com]*
+LinkedIn: *[www.linkedin.com/in/aishabibi-zhilibayeva-2a8594103]*
 
 ---
 
